@@ -1,1 +1,2 @@
-# biostat776-intro-Mary-Sears
+# Introducing Myself
+This website contains a short introduction of Mary Sears.
