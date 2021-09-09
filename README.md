@@ -11,7 +11,7 @@ Hi! I'm a second-year MHS student in Genetic Epidemiology. I have a lot of exper
 
 1. I love literature. I was an English Literature major as an undergrad and I did my senior thesis on Virginia Woolf's To the Lighthouse and Mrs. Dalloway.
 
-2. I am the oldest of three siblings.
+2. I have three younger siblings.
 
 3. My family has a brown toy poodle named Maggie.
 
