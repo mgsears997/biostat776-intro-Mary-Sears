@@ -5,7 +5,7 @@ This website contains a short introduction of Mary Sears.
 # About Me:
 
 
-Hi! I'm a second-year MHS student in Genetic Epidemiology. I have a lot of experience using Stata and some experience using R. I have taken Statistical Methods 1-4 at JHSPH.
+Hi! I'm a second-year MHS student in Genetic Epidemiology. I have a lot of experience using Stata and some experience using R. I have taken Statistical Methods 1-4 at JHSPH. I am excited to improve my R skills in this course.
 
 # Five fun facts about me:
 
