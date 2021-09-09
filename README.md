@@ -11,13 +11,13 @@ Hi! I'm a second-year MHS student in Genetic Epidemiology. I have a lot of exper
 
 1. I love literature. I was an English Literature major as an undergrad and I did my senior thesis on Virginia Woolf's To the Lighthouse and Mrs. Dalloway.
 
-2. I am the oldest of three siblings. My brother Ike just graduated from Northwestern University, my brother Gavin is a freshman at Haverford College, and my sister Beatrice is a senior in high school.
+2. I am the oldest of three siblings.
 
 3. My family has a brown toy poodle named Maggie.
 
 4. I spend a couple weeks every summmer at my family's house on Deer Lake in Grand Rapids, MN. This year my cousin got a video of a family of black bears right outside the front door of the house!
 
-5. My favorite desserts are meringues, macarons, and strawberry ice cream.
+5. My favorite desserts are strawberry ice cream and anything with meringue in it!
 
 # Website Link
 One of my favorite things to do is to read the New York Times Book Review. Here is the link to the online version: 
