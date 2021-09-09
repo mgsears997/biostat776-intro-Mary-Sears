@@ -9,7 +9,7 @@ Hi! I'm a second-year MHS student in Genetic Epidemiology. I graduated with my B
 
 # Five fun facts about me:
 
-1. I love literature. As an undergrad, I was an English Literature major, and I did my senior thesis on Virginia Woolf's To the Lighthouse and Mrs Dalloway.
+1. I love literature. As an undergrad, I was an English Literature major, and I did my senior thesis on Virginia Woolf's To the Lighthouse and Mrs. Dalloway.
 
 2. I have three younger siblings.
 
