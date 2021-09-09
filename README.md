@@ -9,13 +9,13 @@ Hi! I'm a second-year MHS student in Genetic Epidemiology. I have a lot of exper
 
 # Five fun facts about me:
 
-1. I love literature. I was an English Literature major as an undergrad and I did my senior thesis on Virginia Woolf's To the Lighthouse and Mrs. Dalloway.
+1. I love literature. As an undergrad, I was an English Literature major, and I did my senior thesis on Virginia Woolf's To the Lighthouse and Mrs. Dalloway.
 
 2. I have three younger siblings.
 
 3. My family has a brown toy poodle named Maggie.
 
-4. I spend a couple weeks every summmer at my family's house on Deer Lake in Grand Rapids, MN. This year my cousin got a video of a family of black bears right outside the front door of the house!
+4. Every summer, I spend a couple of weeks at my family's house on Deer Lake in Grand Rapids, MN. This year, my cousin got a video of a family of black bears right outside the house's front door!
 
 5. My favorite desserts are strawberry ice cream and anything with meringue in it.
 
