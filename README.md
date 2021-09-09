@@ -17,7 +17,7 @@ Hi! I'm a second-year MHS student in Genetic Epidemiology. I have a lot of exper
 
 4. I spend a couple weeks every summmer at my family's house on Deer Lake in Grand Rapids, MN. This year my cousin got a video of a family of black bears right outside the front door of the house!
 
-5. My favorite desserts are strawberry ice cream and anything with meringue in it!
+5. My favorite desserts are strawberry ice cream and anything with meringue in it.
 
 # Website Link
 One of my favorite things to do is to read the New York Times Book Review. Here is the link to the online version: 
